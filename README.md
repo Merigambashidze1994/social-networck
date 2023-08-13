@@ -1,3 +1,3 @@
 # social-networck
 
-some new textor information how to up my code
+some new text or information how to up my code
